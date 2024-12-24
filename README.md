@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Yui-Chan!
 - 👀 I’m interested in computer viruses :3
 - 🌱 I’m currently learning how to start coding
-- 💞️ I’m looking to collaborate on ...
+- 💞️ My boyfriend beats ass
 - 📫 How to reach me: don't.
 - 😄 Pronouns: she/her!
 - ⚡ Fun fact: i love puppies..
